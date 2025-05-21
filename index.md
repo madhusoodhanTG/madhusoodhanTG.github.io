@@ -38,7 +38,7 @@ We do **not** knowingly collect information from children under 13. If you are a
 ## 6. Your Rights
 
 - **View & Delete**: You can view and delete every transaction or preference in the app.  
-- **Questions or Requests**: Email us at **support@yourdomain.com**.
+- **Questions or Requests**: Email us at **Madhusmaa@gmail.com**.
 
 ---
 
